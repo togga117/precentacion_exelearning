@@ -1,2 +1,0 @@
-# precentacion_exelearning
-precentacion_exelearning
